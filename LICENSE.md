@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with AI-powered blur sniper bot | metadata-parsing + rarity-analysis, the #1 blur sniper bot. Includes metadata-parsing and rarity-analysis for a faster
 
 
 
